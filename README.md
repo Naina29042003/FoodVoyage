@@ -117,4 +117,4 @@ A: Yes, you can easily adjust quantities or remove items in real-time.
 
 ## Contact Information
 
-**Email**: [vinodkumarhulebeedu@gmail.com](mailto:vinodkumarhulebeedu@gmail.com)  
+**Email**: [nandinaina10@gmail.com](mailto:nandinaina10@gmail.com)  
